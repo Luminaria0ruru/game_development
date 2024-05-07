@@ -1,2 +1,2 @@
 # game_development
-ちんこ
+おちんこ
